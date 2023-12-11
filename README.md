@@ -1,1 +1,3 @@
-[![Review Assignment Due Date](https://classroom.github.com/assets/deadline-readme-button-24ddc0f5d75046c5622901739e7c5dd533143b0c8e959d652212380cedb1ea36.svg)](https://classroom.github.com/a/B7BZOd9P)
+Link youtube: https://youtu.be/RPudIsyijEw
+
+Link códigos One Drive: https://uccl0-my.sharepoint.com/:f:/g/personal/mfalvarez1_uc_cl/EuMC41X5pDZJq44tuHbt-c4BdIDCGD6HuvDarFjU9q4N3g
